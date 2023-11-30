@@ -12,3 +12,6 @@
 
 ![oyuniçi](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/df680dfb-9b66-498f-8303-c8e16d965706)
 
+
+![seyirciler](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/c219838c-78bf-4bf6-a917-864ed28814aa)
+
