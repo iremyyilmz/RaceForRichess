@@ -15,3 +15,6 @@
 
 ![seyirciler](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/c219838c-78bf-4bf6-a917-864ed28814aa)
 
+
+![kaybetme](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/254dab96-134c-4b66-aef6-7e76d499e356)
+
