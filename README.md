@@ -18,3 +18,6 @@
 
 ![kaybetme](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/254dab96-134c-4b66-aef6-7e76d499e356)
 
+
+![kazanma](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/1b4e4281-d363-445e-b31d-de43ab5ff065)
+
