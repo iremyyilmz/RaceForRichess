@@ -21,3 +21,5 @@
 
 ![kazanma](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/1b4e4281-d363-445e-b31d-de43ab5ff065)
 
+
+![kupa](https://github.com/iremyyilmz/RaceForRichess/assets/134611467/0818bb1a-a1e9-47f9-8611-c2c02bb47e81)
